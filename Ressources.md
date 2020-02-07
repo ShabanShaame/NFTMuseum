@@ -16,3 +16,9 @@ https://breakermag.com/how-cryptopunks-creators-charmed-the-art-world-and-paved-
 Links
 
 
+To explore
+
+Hal finney mention of collectibles
+ https://twitter.com/wasthatawolf/status/1208965455131611136
+
+
